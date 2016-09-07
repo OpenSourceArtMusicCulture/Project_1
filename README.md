@@ -23,3 +23,9 @@ Exquisite Due Date: Wednesday, October 5, 2016, start of class
 
 * Needlepoint fabrics will be sewn together
 * Possibly also hang in 2nd floor of Sage
+
+## Extra Credit:
+
+* Do a flip?
+* Bring in enough donuts for everybody in the class to get one
+* Challenge Jim to a rap battle
