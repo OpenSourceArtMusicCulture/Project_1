@@ -1,6 +1,7 @@
 # Collection of Resources
 
 ## Imaging
+
 Krita
 [https://krita.org/en/](https://krita.org/en/)
 

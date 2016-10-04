@@ -18,6 +18,7 @@ Exquisite Due Date: Wednesday, October 5, 2016, start of class
 * Take a head, torso, or legs piece
 * Needlepoint over the image
 * Bring needlepoint to class
+* Submit a photo of your needlepoint work to the assignment on LMS
 
 ## Critique:
 
